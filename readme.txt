@@ -1,0 +1,1 @@
+I am going over the basics again! Boot camp moved fast so I want to ensure I have good foundation to build off of. 
